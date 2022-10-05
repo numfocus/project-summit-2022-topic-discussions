@@ -1,1 +1,1 @@
-# project-summit-2022-topic-discussions
+# Project Summit 2022 topic discussions
